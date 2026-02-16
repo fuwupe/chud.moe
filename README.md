@@ -1,1 +1,1 @@
-# chud.moe
+what the sigma
